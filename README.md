@@ -1,7 +1,5 @@
-### Heyyaaa
+# Hey Community
 
--  I’m currently working on THIS:)
+- Step by step ... learning coding atm
 
-# u gotta be in it 2 win it
-
-let´s go for it 
+- Discord: danmille #8694
